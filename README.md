@@ -1,0 +1,1 @@
+Lives on Land" focuses on protecting forests, wildlife, and natural habitats. It promotes biodiversity, prevents deforestation, and supports sustainable land use to ensure a healthy planet for all living beings.
